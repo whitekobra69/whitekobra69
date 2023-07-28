@@ -1,4 +1,4 @@
-### Hi 👋, I'm WHITE KOBRA
+### Hi 👋, I'm WHITE COBRA
 
 
 
